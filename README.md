@@ -1,5 +1,5 @@
 # Jefferson-Chen
-A wonderful place to store something interesting and useful for me!
+
 I am Jefferson from Shanghai, China, who is studying a master degree of professional accounting at AUT. I love doing everything I cannot to alwasy upgrade myself. 
 
 I love New Zealand and kiwis!
